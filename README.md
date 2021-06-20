@@ -20,3 +20,7 @@ Ataques parcheados de botnets que la gente compra y se creen hacks
 - KILL-ALLV1 method 
 - Custom STD
 
+By DANO XYZ💻🌐#4346
+
+# XYZ CLOUD 
+https://hosting-xyz.com
